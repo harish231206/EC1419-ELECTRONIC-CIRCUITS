@@ -6,10 +6,11 @@
 
 <img width="756" height="368" alt="image" src="https://github.com/user-attachments/assets/aa815e31-1643-4c2b-afda-0c436818087e" />
 
-## Tabulations
+
 
 ## Graph
+![wain](https://github.com/user-attachments/assets/cd571ab1-52bf-48f6-b151-c276e15933fc)
 
+![WhatsApp Image 2025-11-22 at 22 09 15_84135f65](https://github.com/user-attachments/assets/73e7d40c-6889-4973-b20d-9c85cdd1f7ca)
 
-<img width="853" height="183" alt="image" src="https://github.com/user-attachments/assets/ee91e1c1-171c-4208-83ee-e61ea1ba626c" />
 
